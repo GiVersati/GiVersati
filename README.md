@@ -10,7 +10,7 @@
 - 👨‍🎓 Atualmente estou realizando cursos de especialização em front end no Alura. Formada em Sistemas de Informação na Faccat.
   
 
-- 👍 Estou em busca de oportunidades na area de Front end!  
+- 👍 Estou em busca de oportunidades na area de Tecnologia!  
   
 
 - ✉️ Contato: geovannaversati@gmail.com
