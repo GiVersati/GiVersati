@@ -10,7 +10,7 @@
 - 👨‍🎓 Atualmente atuo como QA e desenvolvedora em projetos pessoais. Formada em Sistemas de Informação na Faccat.
   
 
-- 👍 Estou em busca de oportunidades na area de Tecnologia!  
+- 👍 Estou em busca de oportunidades na area de Tecnologia! NÃO ESTÁ ATUALIZADO!  
   
 
 - ✉️ Contato: geovannaversati@gmail.com
