@@ -7,7 +7,7 @@
 </div>
   
 
-- 👨‍🎓 Atualmente estou realizando cursos de especialização em front end no Alura. Formada em Sistemas de Informação na Faccat.
+- 👨‍🎓 Atualmente atuo como QA e desenvolvedora em projetos pessoais. Formada em Sistemas de Informação na Faccat.
   
 
 - 👍 Estou em busca de oportunidades na area de Tecnologia!  
